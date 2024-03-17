@@ -1,0 +1,1 @@
+Bandrex is a traditional Sundanese drink consumed to increase body warmth12. This drink is made from ginger, sugar, palm palm, pandan leaves, cinnamon, cloves, and salt2. All these ingredients are boiled to a boil2. Bandrex is usually served in cold weather, such as when it rains or at night1.
